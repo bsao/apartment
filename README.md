@@ -24,6 +24,7 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 
 ---
 - Contact: Telegram @bsao0 - Please mention this ad.
+- Airbnb: https://www.airbnb.com/rooms/684468278432797977
 
 ---
 ![IMG_3253](https://user-images.githubusercontent.com/123325/205910960-0b4a2992-8b96-4fcb-a187-b2829813745f.jpeg)

@@ -18,7 +18,7 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 * DSL Internet
 
 ---
-- **Rent: 1500 Euros / Month**
+- **Rent: 1400 Euros / Month**
 - Full package for 3 Months: **4200 Euros**
 - **The start time is flexible.**
 

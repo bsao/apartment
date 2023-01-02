@@ -1,6 +1,6 @@
 # 2 zimmers apartment in Mitte, Berlin.
 
-From January 2nd to April 2nd, my apartment in the heart of Berlin will be available for subletting in a stunning city building with high-end furnished apartments. 
+From February 1st to April 2nd, my apartment in the heart of Berlin will be available for subletting in a stunning city building with high-end furnished apartments. 
 
 It has a generous living/dining area with a loft feel, access to the balcony, and a projector of 300 inches so that you can enjoy a good movie or listen to excellent music. One bedroom with a second desk and access to the second terrace.
 
@@ -19,12 +19,11 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 
 ---
 - **Rent: 1500 Euros / Month**
-- Full package for 3 Months: **4500 Euros**
-- **The start time is flexible.**
+- Full package for 2 Months: **3000 Euros**
+- **The start time is flexible in January**
 
 ---
 - Contact: Telegram @bsao0 - Please mention this ad.
-- Airbnb: https://www.airbnb.com/rooms/684468278432797977
 
 ---
 ![IMG_3253](https://user-images.githubusercontent.com/123325/205910960-0b4a2992-8b96-4fcb-a187-b2829813745f.jpeg)

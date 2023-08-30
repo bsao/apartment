@@ -15,8 +15,8 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 
 ---
 - **Rent: 1550 Euros (1400 EUR - `Rent` + 50 EUR - `DSL` + 20 EUR `Rundfunkbeitrag` - 80 EUR - `Electricity`)  / Month**
-* **Deposit:** 1 month, back right after the hand-off
-* **Weekly cleaning service (by Agreement)** 40 EUR
+- * **Deposit:** 1 month, back right after the hand-off
+- * **Weekly cleaning service (by Agreement)** - 40 EUR
 - **Just the full period**
 
 ---

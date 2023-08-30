@@ -1,16 +1,12 @@
 # 2 zimmers apartment in Mitte, Berlin.
 
-From January 7nd to April 2nd, my apartment in the heart of Berlin will be available for subletting in a stunning city building with high-end furnished apartments. 
+From December 1st to March 31st, my apartment in the heart of Berlin will be available for subletting in a stunning city building with high-end furnished apartments. 
 
 It has a generous living/dining area with a loft feel, access to the balcony, and a projector of 300 inches so that you can enjoy a good movie or listen to excellent music. One bedroom with a second desk and access to the second terrace.
 
 **Note:** Internet flat rate and broadcasting fees are included in rent. Charges for the final cleaning service will apply at the end of the lease.
-
-* **Deposit:** By Agreement
-* **Weekly cleaning service (by Agreement)**
-
 ---
-* 2 Zimmers ( 1 bedroom and one living room)
+* 2 Zimmers (1 bedroom and one living room)
 * Living room with projector.
 * Bathroom with Bathtub
 * Open-fitted kitchen, dishwasher, fridge
@@ -18,8 +14,10 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 * DSL Internet
 
 ---
-- **Rent: 1500 Euros / Month**
-- **The start time is flexible in January and will be proportional**
+- **Rent: 1550 Euros (1400 EUR - `Rent` + 50 EUR - `DSL` + 19 EUR `Rundfunkbeitrag` - 80 EUR - `Electricity`)  / Month**
+* **Deposit:** 1 month, back right after the hand-off
+* **Weekly cleaning service (by Agreement)** 40 EUR
+- **Just the full period**
 
 ---
 - Contact: Telegram @bsao0 - Please mention this ad.

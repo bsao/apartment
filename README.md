@@ -7,12 +7,13 @@ It has a generous living/dining area with a loft feel, access to the balcony, an
 **Note:** Internet flat rate and broadcasting fees are included in rent.
 ---
 * 2 Zimmers (1 bedroom and one living room)
+* 60 m2
 * Living room with projector.
 * Bathroom with Bathtub
 * Open-fitted kitchen, dishwasher, fridge.
 * Wash machine.
 * DSL Internet.
-
+* _Anmeldung is possible_
 ---
 - **Rent: 1500 Euros (1370 EUR - `Rent` + 50 EUR - `DSL` - 80 EUR - `Electricity`)  / Month**
 - **Deposit:** (**1000 Euros**), back right after the hand-off

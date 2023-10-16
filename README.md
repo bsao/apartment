@@ -4,20 +4,19 @@ From December 1st to March 31st, my apartment in the heart of Berlin will be ava
 
 It has a generous living/dining area with a loft feel, access to the balcony, and a projector of 300 inches so that you can enjoy a good movie or listen to excellent music. One bedroom with a second desk and access to the second terrace.
 
-**Note:** Internet flat rate and broadcasting fees are included in rent. Charges for the final cleaning service will apply at the end of the lease.
+**Note:** Internet flat rate and broadcasting fees are included in rent.
 ---
 * 2 Zimmers (1 bedroom and one living room)
 * Living room with projector.
 * Bathroom with Bathtub
-* Open-fitted kitchen, dishwasher, fridge
-* Wash machine
-* DSL Internet
+* Open-fitted kitchen, dishwasher, fridge.
+* Wash machine.
+* DSL Internet.
 
 ---
-- **Rent: 1550 Euros (1400 EUR - `Rent` + 50 EUR - `DSL` + 20 EUR `Rundfunkbeitrag` - 80 EUR - `Electricity`)  / Month**
-- **Deposit:** 1 month, back right after the hand-off
-- **Weekly cleaning service (by Agreement)** - 40 EUR
-- **Just the full period**
+- **Rent: 1500 Euros (1370 EUR - `Rent` + 50 EUR - `DSL` - 80 EUR - `Electricity`)  / Month**
+- **Deposit:** (**1000 Euros**), back right after the hand-off
+- **Just the full period** - Flexible dates to start and end. 
 
 ---
 - Contact: Telegram @bsao0 - Please mention this ad.
